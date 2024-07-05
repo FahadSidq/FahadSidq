@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Python**
 
-- 📫 How to reach me **fahadsiddiqui2023@gmail.com // fahadasad_**
+- 📫 How to reach me **fahadsiddiqui2023@gmail.com // @fahadasad_**
 
 - ⚡ Fun fact **16 and self-taught**
 
